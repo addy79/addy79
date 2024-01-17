@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I am currently a computer science student
+🌱 I am currently a general engineering student
 
 
 ## 🌐 Socials:
